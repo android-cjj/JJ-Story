@@ -71,6 +71,24 @@
 
 ![](http://ww1.sinaimg.cn/mw690/7ef01fcagw1f1vapx76koj20k00zkadi.jpg)
 
+虽然，壳口头认输了，还是做最后的挣扎
+
+![](http://ww3.sinaimg.cn/mw690/7ef01fcagw1f1vapz35ctj20k00zk0wu.jpg)
+
+![](http://ww1.sinaimg.cn/mw690/7ef01fcagw1f1vapzouqfj20k00zkdiw.jpg)
+
+我还是没有失误，他也就投降认输了
+
+![](http://ww1.sinaimg.cn/mw690/7ef01fcagw1f1vaq0ppb9j20k00zkq6p.jpg)
+
+建议：路边摆的象棋，不要去看热闹，分分钟进入人家布的局。
+
+
+关于我(http://android-cjj.github.io/)
+---------------------------
+
+链接加入群【GitHub小伙伴交流群'''】：http://jq.qq.com/?_wv=1027&k=27lxYHB''' ,群号：477826523
+
 
 
 
