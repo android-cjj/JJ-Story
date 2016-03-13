@@ -59,11 +59,9 @@
 
 棋还是没有结束，继续进行着......
 
-![](http://ww3.sinaimg.cn/mw690/7ef01fcagw1f1vaptb6e9j20k00zkwii.jpg)
+![](http://ww1.sinaimg.cn/mw690/7ef01fcagw1f1vapuirx0j20k00zkjuy.jpg)
 
 这图已经被p的面目全非了，没事，我们还是能看懂的。
-
-![](http://ww1.sinaimg.cn/mw690/7ef01fcagw1f1vapuirx0j20k00zkjuy.jpg)
 
 ![](http://ww3.sinaimg.cn/mw690/7ef01fcagw1f1vapv70utj20k00zk784.jpg)
 
