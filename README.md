@@ -1,4 +1,4 @@
-###当李世石下出神一笔时，CJJ下出了坑之一笔
+###当李世石下出神之一笔时，CJJ下出了坑之一笔
 
 今天我们见证了李世石仿佛佐为附体，下了神之一笔，逆袭了阿法尔狗。然而，相信大家大都是围棋盲，看不懂。这里，我们GitHub小伙伴交流群（477826523）也下了
 一场象棋，准确来说是残局，纯属搞笑。
@@ -61,6 +61,8 @@
 
 ![](http://ww3.sinaimg.cn/mw690/7ef01fcagw1f1vaptb6e9j20k00zkwii.jpg)
 
+这图已经被p的面目全非了，没事，我们还是能看懂的。
+
 ![](http://ww1.sinaimg.cn/mw690/7ef01fcagw1f1vapuirx0j20k00zkjuy.jpg)
 
 ![](http://ww3.sinaimg.cn/mw690/7ef01fcagw1f1vapv70utj20k00zk784.jpg)
@@ -84,8 +86,8 @@
 建议：路边摆的象棋，不要去看热闹，分分钟进入人家布的局。
 
 
-关于我(http://android-cjj.github.io/)
----------------------------
+[关于我](http://android-cjj.github.io/)
+
 
 链接加入群【GitHub小伙伴交流群'''】：http://jq.qq.com/?_wv=1027&k=27lxYHB''' ,群号：477826523
 
